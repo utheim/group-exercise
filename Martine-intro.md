@@ -1,5 +1,5 @@
 a. Martine Utheim
-b. Norway
+b. No country of origin
 c. html, css
-d. Germany's role in world politics
+d. Love is blind Habibi
 
